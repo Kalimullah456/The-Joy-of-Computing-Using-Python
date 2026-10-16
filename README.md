@@ -1,0 +1,1 @@
+<img width="5318" height="3810" alt="NPTEL26CS84S36310011704664763_page-0001" src="https://github.com/user-attachments/assets/a4ca5241-d7f9-4b62-8902-08e6de5277af" /><img width="5318" height="3810" alt="NPTEL26CS84S36310011704664763_page-0001" src="https://github.com/user-attachments/assets/1d6e1dc2-71c4-446a-8bfa-e5545a0b270d" />
